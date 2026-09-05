@@ -3,5 +3,5 @@
   ─────── ♡ 🎀 ♡ ───────
 </p>
 <p align="center">
-  im Lynlp! ^_^
+  im Lynlp! 
 </p>
